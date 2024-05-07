@@ -24,7 +24,7 @@
 
 ### ⚠ Join [@paisa group](https://t.me/app_paisa) on Telegram for important updates
 
-### Screen shots
+### Screen shots 5
 
 #### Mobile
 
